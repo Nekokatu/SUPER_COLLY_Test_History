@@ -63,3 +63,9 @@ https://discord.com/invite/tacNqQVtEK
 
 https://x.com/hashtag/%E3%81%AD%E3%81%93%E3%81%B6%E3%81%8B%E3%81%A4?src=hashtag_click&f=live
 
+
+
+【ダウンロード方法】
+<img width="1911" height="885" alt="スクリーンショット 2025-08-12 193438" src="https://github.com/user-attachments/assets/4a6c44e4-6dcc-4dad-979a-175603bae973" />
+<img width="1918" height="885" alt="スクリーンショット 2025-08-12 193531" src="https://github.com/user-attachments/assets/71ef6ff9-00d2-47cb-8db8-527c11000e3c" />
+
