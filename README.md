@@ -1,4 +1,4 @@
-![SUPERCOLLY](https://github.com/user-attachments/assets/23a350ea-5588-4da0-8883-ce879154130f)
+<img width="1024" height="512" alt="colly_ロゴ_アートボード 1_0" src="https://github.com/user-attachments/assets/e4c9c136-4541-4b6d-bba0-d20a581581fd" />
 
 スーパーコリー（SUPERCOLLY）の体験版ダウンロードアーカイブです。
 以下のDiscordサーバーで最新情報と開発者との交流ができますので、ご参加をお待ちしております！！
@@ -10,4 +10,7 @@ Those who play the trial version will be featured as a special thanks!!
 
 【Discord】
 https://discord.com/invite/tacNqQVtEK
+
+
+![SUPERCOLLY](https://github.com/user-attachments/assets/23a350ea-5588-4da0-8883-ce879154130f)
 
