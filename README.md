@@ -11,6 +11,6 @@ Those who play the trial version will be featured as a special thanks!!
 【Discord】
 https://discord.com/invite/tacNqQVtEK
 
-
-![SUPERCOLLY](https://github.com/user-attachments/assets/23a350ea-5588-4da0-8883-ce879154130f)
+【X】
+https://x.com/hashtag/%E3%81%AD%E3%81%93%E3%81%B6%E3%81%8B%E3%81%A4?src=hashtag_click&f=live
 
